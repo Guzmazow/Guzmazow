@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Guzmazow.
+- 👀 I’m interested in eastern comics.
+- 🌱 I’m currently learning nothing.
+- 💞️ I’m looking to collaborate on nothing.
+- 📫 How to reach me. You don't...
